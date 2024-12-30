@@ -65,10 +65,8 @@ https://www.dailymail.co.uk/news/article-3921640/The-latest-victims-South-Caroli
 
 https://www.greenvilleonline.com/story/news/local/south-carolina/2019/02/19/kala-brown-issues-public-statement-fiance-adam-maysons-death/2914698002/
 
-*
-*
 
-YOUTUBE/AMAZON
+# YOUTUBE/AMAZON
 
 https://www.youtube.com/watch?v=HnqH1wfV-m4&t=1614s
 
